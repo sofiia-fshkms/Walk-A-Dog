@@ -1,4 +1,4 @@
-Dog Café
+WalkADog
 
 Eva Ftoreková, Eliška Púčiková, Sofiia Mosina
 
